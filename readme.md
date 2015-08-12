@@ -98,10 +98,9 @@ Mais em: [Delegação](http://www.sobreadministracao.com/delegacao-de-autoridade
 
  * Usou banheiro dê descarga
 
- * 2 vezes ma semana limpar as bancadas e objetos de trabalho.
-
  * Está errado corrija
 
+ * Estabelecer 2 dias na semana para limpar as bancadas e objetos de trabalho.
 
 
 ---
@@ -112,5 +111,24 @@ Mais em: [Delegação](http://www.sobreadministracao.com/delegacao-de-autoridade
 ---
 ## Pontos Negativos
 
+* Falta de compreensão entre alguns parceiros na hora da comunicação
+
+
+* Atrazo dos projetos
+
+
+* Atrazo das documentações do cliente
+
+
+* Discussões
+
 ---
 ## Pontos Positivos
+
+* Confiança
+
+* Respeito
+
+* Ajuda
+
+* Amizade
